@@ -6,14 +6,14 @@
 4. Negotiation Skills
 5. Communication Skills
 
-Personality - Trails
+Personality - Traits
 1. Time - Management 
 2. Smart Work
 3. Risk Management (Never GiveUP)
 4. Positive Thinking 
 5. Growth Mindset 
 
-LeaderShip/Management - Skills
+Leadership/Management - Skills
 1. Planning
 2. Risk Management
 3. Delegation
